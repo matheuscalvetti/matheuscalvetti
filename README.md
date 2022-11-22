@@ -1,6 +1,6 @@
 ### Olá, sou o Matheus! 😆
 
-🚩 Sou catarinense, atualmente faço Engenharia de Softwares!
+🚩 Catarinense, atualmente faço Engenharia de Softwares!
 
 🙏 Estou buscando recolocação no mercado, na área de tecnologia
 
